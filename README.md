@@ -3,7 +3,7 @@
 we will help yu learn to fold/make and fly paper airplanes
 ## different types of planes:
 1,pink angels 2,stunt maker 3, mini copilot 4,rainbow lighting 5, twisters 6,zoomers
-![](./IMG_2440.JPG) ![](./IMG_2454.JPG) ![](./IMG_2451.JPG) ![](./IMG_2447.JPG) ![](./image0.jpeg) ![](./)
+![](./IMG_2440.JPG) ![](./IMG_2454.JPG) ![](./IMG_2451.JPG) ![](./IMG_2447.JPG) ![](./image0.jpeg) ![](./image1.jpeg)
 
 ## how to throw
 ### throwing the plane corectly is very important. it dependes on witch plane, 
