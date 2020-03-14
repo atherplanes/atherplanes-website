@@ -8,7 +8,7 @@ we will help you learn to fold/make and fly paper airplanes
 ## how to throw
 ### throwing the plane corectly is very important. it dependes on witch plane, 
 if its a pink angel, you want to throw it lightly bending your rist back then moving your rist forward then lanching.
-but the stunt maker it is built so you can throw it as hard as you like
+but the stunt maker is built so you can throw it as hard as you like
 
 ```markdown
 Syntax highlighted code block
