@@ -10,8 +10,7 @@ we will help you learn to fold/make and fly paper airplanes
 if its a pink angel, you want to throw it lightly bending your rist back then moving your rist forward then lanching.
 but the stunt maker is built so you can throw it as hard as you like
 
-```markdown
-Syntax highlighted code block
+## how to make pink angels
 
 # Header 1
 ## Header 2
