@@ -12,7 +12,7 @@ but the stunt maker is built so you can throw it as hard as you like
 
 ## how to make pink angeles
 
-![](.IMG_2440.JPG)
+1, first fold the top two corners down to the middle of the paper.
 
 
 
