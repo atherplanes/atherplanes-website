@@ -1,12 +1,12 @@
 # Welcome to atherplanes
-## theis is a paper airplane compony
+## this is a paper airplane compony
 we will help yu learn to fold/make and fly paper airplanes
 ## different types of planes:
 1,pink angels 2,stunt maker 3, mini copilot 4,rainbow lighting 5, twisters 6,zoomers
 ![](./IMG_2440.JPG) ![](./IMG_2454.JPG) ![](./IMG_2451.JPG) ![](./IMG_2447.JPG)
 
+## how to throw
 
-### Markdown
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
