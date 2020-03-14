@@ -1,5 +1,5 @@
 # Welcome to atherplanes
-## this is a paper airplane compony
+## this is a paper airplane company
 we will help yu learn to fold/make and fly paper airplanes
 ## different types of planes:
 1,pink angels 2,stunt maker 3, mini copilot 4,rainbow lighting 5, twisters 6,zoomers
