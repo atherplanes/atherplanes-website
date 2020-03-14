@@ -6,9 +6,9 @@ we will help yu learn to fold/make and fly paper airplanes
 ![](./IMG_2440.JPG) ![](./IMG_2454.JPG) ![](./IMG_2451.JPG) ![](./IMG_2447.JPG)
 
 ## how to throw
+### throwing the plane corectly is very important. it dependes on witch plane, 
+if its a pink angel, you want to throw it lightly bending your rist back then moving your rist forward then lanching.
 
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
 ```markdown
 Syntax highlighted code block
