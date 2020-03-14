@@ -4,7 +4,7 @@ You can use the [editor on GitHub](https://github.com/atherplanes/atherplanes-we
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-![pink angels](IMG_2440.jpg)
+![pink angels](./IMG_2440.jpg)
 
 ### Markdown
 
