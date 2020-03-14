@@ -14,7 +14,7 @@ but the stunt maker is built so you can throw it as hard as you like
 
 1, first fold the top two corners down to the middle of the paper.
 
-![](.IMG_2440.JPG)
+![](./IMG_2440.JPG)
 
 
 
