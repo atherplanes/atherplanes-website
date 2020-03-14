@@ -11,10 +11,9 @@ if its a pink angel, you want to throw it lightly bending your rist back then mo
 but the stunt maker is built so you can throw it as hard as you like
 
 ## how to make pink angeles
-1, 
 
+![](.IMG_2440.JPG)
 
-![](./IMG_2440.JPG) 
 
 
 
