@@ -36,9 +36,9 @@ But the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2526.JPG)
 
+7, then fold the two flaps back up so it looks like this.  now your done! hope you enjoy your paper airplane.
 
-
-
+![](./IMG_2529.JPG)
 
 
 
