@@ -43,7 +43,7 @@ But the stunt maker is built so you can throw it as hard as you like
 ![](./IMG_2530.JPG)
 
 
-## How To Make Saurer
+## How To Make Soarer
 
 1, First fold in half leignth wize and unfold.
 
