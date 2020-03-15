@@ -53,7 +53,7 @@ But the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2538.JPG)
 
-
+3, Now fold in halfso it looks like this
 
 
 
