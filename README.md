@@ -22,7 +22,7 @@ but the stunt maker is built so you can throw it as hard as you like
 
 3, then fold the top two corners down to the mittil of the bottum of the paper.
 
-
+![](./IMG_2507.JPG)
 
 
 
