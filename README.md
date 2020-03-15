@@ -28,13 +28,13 @@ But the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2517.JPG)
 
-5,Then fold down the first flap of the two flaps.
+5,Then fold down the first flap of the two flaps so it looks like this.
 
 ![](./IMG_2519.JPG)
 
+6, Then flip it over and fold the other flap down so it looks like this.
 
-
-
+![](./IMG_2526.JPG)
 
 
 
