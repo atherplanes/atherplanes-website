@@ -24,9 +24,9 @@ but the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2506.JPG)
 
+4,then flip over the paper and fold it in half so it looks like a smaller triangel.
 
-
-
+![](./IMG_2517.JPG)
 
 
 
