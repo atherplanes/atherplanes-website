@@ -2,7 +2,7 @@
 ## This is a paper airplane company
 We will help you learn to fold/make and fly paper airplanes
 ## Different types of planes:
-1 Pink Angels, 2 Stunt Maker, 3 Mini Copilot, 4 Rainbow Lighting, 5 Twisters, 6 Zoomers, 7 Soarer
+1 Pink Angels, 2 Stunt Maker, 3 Mini Copilot, 4 Rainbow Lighting, 5 Twisters, 6 Zoomers, Soarer, cofin...etc.
 ![](./IMG_2440.JPG) ![](./IMG_2454.JPG) ![](./IMG_2451.JPG) ![](./IMG_2447.JPG) ![](./image0.jpeg) ![](./image1.jpeg) 
 ![](./IMG_2522) 
 ## How to throw
@@ -36,7 +36,7 @@ But the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2526.JPG)
 
-7, then fold the two flaps back up so it looks like this.  now your done! hope you enjoy your paper airplane.
+7, then fold the two flaps back up so it looks like this. Now you're done! Hope you enjoy your paper airplane.
 
 ![](./IMG_2529.JPG)
 
