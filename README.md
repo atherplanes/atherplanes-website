@@ -20,7 +20,7 @@ but the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2504.JPG)
 
-3, then fold the top two corners down to the mittle of the bottum of the paper.
+3, then fold the top two corners down to the middle of the bottum of the paper.
 
 ![](./IMG_2506.JPG)
 
