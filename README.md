@@ -51,7 +51,7 @@ But the stunt maker is built so you can throw it as hard as you like
 
 2, Then fold the top two corners down into the middle, on the crease.
 
-
+![](./IMG_2538.JPG)
 
 
 
