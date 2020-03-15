@@ -30,7 +30,7 @@ but the stunt maker is built so you can throw it as hard as you like
 
 5,then fold down the first flap of the two flaps.
 
-
+![](./IMG_2519.JPG)
 
 
 
