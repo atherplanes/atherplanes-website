@@ -16,7 +16,7 @@ but the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2503.JPG)
 
-
+2, then fold 
 
 
 
