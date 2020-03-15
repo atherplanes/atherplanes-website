@@ -2,7 +2,7 @@
 ## this is a paper airplane company
 we will help you learn to fold/make and fly paper airplanes
 ## different types of planes:
-1,pink angels 2,stunt maker 3, mini copilot 4,rainbow lighting 5, twisters 6,zoomers
+1pink angels 2,stunt maker 3, mini copilot 4,rainbow lighting 5, twisters 6,zoomers, soarer7
 ![](./IMG_2440.JPG) ![](./IMG_2454.JPG) ![](./IMG_2451.JPG) ![](./IMG_2447.JPG) ![](./image0.jpeg) ![](./image1.jpeg)
 
 ## how to throw
