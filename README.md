@@ -20,23 +20,23 @@ But the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2504.JPG)
 
-3, Then fold the top two corners down to the middle of the bottum of the paper.
+3, Fold the top two corners down to the middle of the bottum of the paper.
 
 ![](./IMG_2506.JPG)
 
-4,Then flip over the paper and fold it in half so it looks like a smaller triangel.
+4, Flip over the paper and fold it in half so it looks like a smaller triangel.
 
 ![](./IMG_2517.JPG)
 
-5,Then fold down the first flap of the two flaps so it looks like this.
+5, Fold down the first flap of the two flaps so it looks like this.
 
 ![](./IMG_2519.JPG)
 
-6, Then flip it over and fold the other flap down so it looks like this.
+6, Flip it over and fold the other flap down so it looks like this.
 
 ![](./IMG_2526.JPG)
 
-7, then fold the two flaps back up so it looks like this. Now you're done! Hope you enjoy your paper airplane.
+7, Fold the two flaps back up so it looks like this. Now you're done! Hope you enjoy your paper airplane.
 
 ![](./IMG_2529.JPG)
 
@@ -53,11 +53,13 @@ But the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2538.JPG)
 
-3, Now fold in halfso it looks like this
+3, Now fold in half so it looks like this
 
 ![](./IMG_2560.JPG)
 
-4, Now fold the two outside flaps down to their side and it should look like this.
+4, Fold the two outside flaps down to their side and it should look like this.
+
+
 
 
 
