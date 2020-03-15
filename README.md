@@ -18,8 +18,7 @@ but the stunt maker is built so you can throw it as hard as you like
 
 2, then fold the point on the top of the paper, down to the bottum of the paper.
 
-
-
+![](./IMG_2504.JPG)
 
 
 
