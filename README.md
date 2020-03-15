@@ -48,3 +48,40 @@ But the stunt maker is built so you can throw it as hard as you like
 1, First fold in half leignth wize and unfold.
 
 ![](./IMG_2533.JPG)
+
+2, Then fold the top two corners down into the middle, on the crease.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
