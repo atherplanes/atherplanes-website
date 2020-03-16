@@ -65,9 +65,9 @@ But the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2568.jpg)
 
+## how to make cofin plane
 
-
-
+1,First fold the paper leignth wise and unfold.
 
 
 
