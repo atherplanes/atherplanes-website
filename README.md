@@ -1,4 +1,4 @@
-# Welcome to Atherplanes
+# *bold* italic Welcome to Atherplanes
 ## This is a paper airplane company
 We will help you learn to fold, make and fly paper airplanes
 ## Different types of planes:
