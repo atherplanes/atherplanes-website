@@ -77,7 +77,7 @@ But the stunt maker is built so you can throw it as hard as you like
 
 3, Now fold it in half so it looks like this.
 
-
+![](./IMG_2582.jpg)
 
 
 
