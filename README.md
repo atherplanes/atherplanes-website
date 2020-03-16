@@ -63,7 +63,7 @@ But the stunt maker is built so you can throw it as hard as you like
 
 5, then you fold the two new outside flaps to their side and voila! you've got you'r self a paper airplane.
 
-
+![](./IMG_2568.jpg)
 
 
 
