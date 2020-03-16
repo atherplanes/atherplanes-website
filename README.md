@@ -1,4 +1,4 @@
-# *BOLD* Welcome to Atherplanes
+# Welcome to Atherplanes
 ## This is a paper airplane company
 We will help you learn to fold, make and fly paper airplanes
 ## Different types of planes:
@@ -61,7 +61,7 @@ But the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2566.JPG)
 
-
+5, then you fold the two new outside flaps to their side and voila! you've got you'r self a paper airplane.
 
 
 
