@@ -81,6 +81,6 @@ But the stunt maker is built so you can throw it as hard as you like
 
 4,Fold the tow outside flaps down to their side and it should look like this.
 
-![](./IMG_2582.jpg)
+
 
 
