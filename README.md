@@ -69,7 +69,7 @@ But the stunt maker is built so you can throw it as hard as you like
 
 1,First fold the paper leignth wise and unfold.
 
-
+![](./IMG_2571.jpg)
 
 
 
