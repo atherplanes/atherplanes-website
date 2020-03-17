@@ -61,11 +61,11 @@ But the stunt maker is built so you can throw it as hard as you like
 
 ![](./IMG_2566.JPG)
 
-5, then you fold the two new outside flaps to their side and voila! you've got you'r self a paper airplane.
+5, Then you fold the two new outside flaps to their side and you're done. You've got you'r self a paper airplane.
 
 ![](./IMG_2568.jpg)
 
-## how to make cofin plane
+## How to make the Cofin plane
 
 1,First fold the paper leignth wise and unfold.
 
@@ -82,5 +82,35 @@ But the stunt maker is built so you can throw it as hard as you like
 4,Fold the tow outside flaps down to their side and it should look like this.
 
 ![](./IMG_2566.JPG)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
