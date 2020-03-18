@@ -86,7 +86,7 @@ If its a pink angel, you want to throw it lightly bending your rist back then mo
 
 ![](./IMG_2585.jpg)
 
-6,Now unfold the underside so it should look like this.
+6,Now unfold the underside so it should look like this and you are done.
 
 ![](./IMG_2589.jpg)
 
