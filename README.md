@@ -88,7 +88,7 @@ If its a pink angel, you want to throw it lightly bending your rist back then mo
 
 6,Now unfold the underside so it should look like this.
 
-
+![](./IMG_2589.jpg)
 
 
 
