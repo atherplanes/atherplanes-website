@@ -90,11 +90,8 @@ If its a pink angel, you want to throw it lightly bending your rist back then mo
 
 ![](./IMG_2589.jpg)
 
-## How to make Stunt Maker
-
-
-
-
+## Videos
+For the rest of the airplane instructions look at these videos!
 
 
 
