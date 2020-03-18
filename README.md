@@ -1,5 +1,5 @@
 # Welcome to Atherplanes
-## This is a paper airplane company
+## This is a paper airplane company for beginers
 We will help you learn to fold, make and fly paper airplanes
 ## Different types of planes:
 1 Pink Angels, 2 Stunt Maker, 3 Mini Copilot, 4 Rainbow Lightings, 5 Twisters, 6 Zoomers, Soarer, cofin...etc.
