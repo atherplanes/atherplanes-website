@@ -82,7 +82,7 @@ If its a pink angel, you want to throw it lightly bending your rist back then mo
 
 ![](./IMG_2566.JPG)
 
-5,Now fold the tow outside flaps down to their side again!
+5, Fold the tow outside flaps down to their side again.
 
 
 
